@@ -1,4 +1,4 @@
-
+Enhance Fantastical for macOS with Fantastical for macOS exclusive Integration - collaboration and calendar integration, the #1 integration. Includes collaboration and calendar
 
 
 
